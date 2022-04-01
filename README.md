@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @oschepkovdaniel
-Independent game developer from Russia =]
+I make games and software! =]
